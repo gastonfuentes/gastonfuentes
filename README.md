@@ -7,5 +7,5 @@ Siempre me fue facil el trabajo en equipo, soy una persona muy sociable y que tr
 
 Contacto:
 Email: gastonnicolasfuentes@gmail.com
-GitHub: https://github.com/gastonfuentes
+Linkedin: https://www.linkedin.com/in/gastonnicolasfuentes/
 
